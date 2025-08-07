@@ -1,3 +1,3 @@
 <p align="center"
 
-![](https://github.com/user-attachments/assets/91148a0c-fd5c-4154-96d2-8249d8b0970f)
+![](https://github.com/user-attachments/assets/4e697ea4-a89c-4627-a6b9-4014d6ac15c7)
